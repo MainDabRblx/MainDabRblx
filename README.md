@@ -1,5 +1,5 @@
 #### Hi there, my name is Main_EX.
-My Discord is Main_EX#3898. I make programs and stuff, and I sometimes release small programs.
+My Discord is Main_EX#3898. I do stuff and other stuff.
 You may know me as Purity_EX (from 2018).
 
 ------------
